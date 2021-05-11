@@ -1,7 +1,12 @@
 Ingredients:-
 
 
-Werpoes Layer(1st layer):
+
+
+WERPOES LAYER(1st layer):
+
+
+
 
 -1 ½ cups Werpoes flour.
 
@@ -23,7 +28,14 @@ Werpoes Layer(1st layer):
 
 
 
-Taurian Layer(2nd layer):
+
+
+TAURIAN LAYER(2nd layer):
+
+
+
+
+
 
 -1 ½ cups Taurian flour.
 
@@ -47,7 +59,14 @@ Taurian Layer(2nd layer):
 
 
 
-Lapsus Layer(3rd layer):
+
+
+
+LAPSUS LAYER(3rd layer):
+
+
+
+
 
 -Butter.
 
@@ -65,7 +84,9 @@ Lapsus Layer(3rd layer):
 
 
 
-Decoration:
+DECORATION:
+
+
 
 -Silver Pearl sprinkles, owl and pumpkin candies.
 
